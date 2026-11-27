@@ -1,2 +1,3 @@
 # poloniavsmexiko2
-riquza* pobrez********************************
+riqu
+*
